@@ -1,1 +1,3 @@
-# whats-on-your-mind
+# *What’s on Your Mind?: A Deep Dive into the Battle for Your Thoughts*
+## *The average human brain is a marvel of creation, processing roughly 10,000 thoughts every single day. Yet, for many Christians, the mind feels less like a well-ordered sanctuary and more like a chaotic battlefield. We struggle with anxiety, intrusive thoughts, and the persistent pull of worldly philosophies. In his transformative book, What’s on Your Mind?: Discover the Power of Biblical Thinking, Dr. John Goetsch argues that our living is always a product of our thinking. Our thoughts are the blueprints for our actions; if we want to change our lives, we must first change our minds.* [More details…](https://spiritualkhazaana.com/whats-on-your-mind-battle-for-your-thoughts/)
+## #whatsonyourmind # whereismymindchords #voiceofgod #godsword #christlike #memorizescripture
